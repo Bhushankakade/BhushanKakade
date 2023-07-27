@@ -6,7 +6,6 @@
 
 - 📝 My Blogs [https://medium.com/@kakadebhushan616](https://medium.com/@kakadebhushan616)
 
-- ⚡ Fun fact **I code👨🏼‍💻 and intake cafine EveryDay😅**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
